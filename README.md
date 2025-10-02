@@ -1,0 +1,1 @@
+# katainaka-no-ossan-kensei-ni-naru-tada-no-inaka-no-kenjutsu-shihan-datta-noni
