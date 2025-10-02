@@ -1,1 +1,4 @@
-# katainaka-no-ossan-kensei-ni-naru-tada-no-inaka-no-kenjutsu-shihan-datta-noni
+# Katainaka no Ossan, Kensei ni Naru ~Tada no Inaka no Kenjutsu Shihan Datta noni,
+Beryl Gardinant, un « vieil homme humble » comme il se décrit lui-même, est maître d'armes dans son dojo situé dans un village rural isolé. Dans sa jeunesse, il rêvait de gloire en tant que maître épéiste, mais cette époque est désormais révolue. Un jour, il reçoit la visite inattendue d'un ancien élève célèbre qui lui annonce une nouvelle bouleversante : il a été nommé instructeur spécial des chevaliers de l'Ordre de Liberion !
+
+Sa vie bouleversée, Beryl se rend dans la capitale et retrouve certains de ses anciens élèves : des chevaliers d'élite, un sorcier hors pair et même un aventurier qui a atteint le plus haut rang possible dans la guilde. Mais pourquoi veulent-ils tous bénéficier de son enseignement ?! En ce qui le concerne, ils n'ont clairement plus besoin de lui. Beryl sera-t-il à la hauteur de sa nouvelle fonction ? Et trouvera-t-il un jour un moment de répit loin de ses élèves admiratifs ?
